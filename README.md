@@ -1,0 +1,1 @@
+# jingchengujianshaolugongjuzuixinbanAmlogic_USB_Burning_Tool_v3.2.0
